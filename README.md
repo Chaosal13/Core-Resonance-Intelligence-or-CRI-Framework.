@@ -1,0 +1,1 @@
+# Core-Resonance-Intelligence-or-CRI-Framework.
